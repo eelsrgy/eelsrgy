@@ -3,7 +3,15 @@
 <br/>
 ㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img width="685" height="413" alt="download (5)" src="https://github.com/user-attachments/assets/76388955-e6d0-4ac5-8e13-5c23504aec95" />
 
- 
+ <br/>
+ <br/>
+ <br/>
+ <br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 <p align="center"><txt/> jyuno ഒ·˚ 15 , he/him ˚. ᵎᵎ
 <p align="center"><txt/> .✦ ݁˖ enneahumans , bsd , pjsk , mdzs , hsr (╥﹏╥) ₊˚⊹♡
 <br/>
