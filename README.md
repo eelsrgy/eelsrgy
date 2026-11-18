@@ -5,7 +5,7 @@
 <br/>
 <br/>
 <p align="center"><txt/> jyuno ഒ·˚ 15 , he/him ˚. ᵎᵎ
-<p align="center"><txt/> .✦ ݁˖ enneahumans , bsd , pjsk , mdzs , hsr (╥﹏╥) ₊˚⊹♡
+<p align="center"><txt/> .✦ ݁˖ enneahumans , bsd , pjsk , gfin , hsr (╥﹏╥) ₊˚⊹♡
 <br/>
 <br/>
 <br/>
