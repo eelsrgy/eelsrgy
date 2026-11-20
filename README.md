@@ -18,7 +18,7 @@
 <br/>
   <p align="center"><txt/> 𝄞⋆ ݁♪ . mostly offtab/with friends 𓏲ּ𝄢
 <p align="center"><txt/> ༘⋆ c+h enc !! int plz <33 ༉‧₊˚.
-<p align="center"><txt/> ૮◞ ‸ ◟ ა please read my prn.cc, carrd & sigh ata ❤︎˖ ݁♬⋆
+<p align="center"><txt/> ૮◞ ‸ ◟ ა please read my prn.cc, carrd & sign ata ❤︎˖ ݁♬⋆
 <br/>
 <p align="center"><txt/> . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
   <br/>
